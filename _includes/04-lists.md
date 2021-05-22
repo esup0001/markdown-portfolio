@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Dozing off
+2. Learning something new
+3. Create something
+4. Show it off
